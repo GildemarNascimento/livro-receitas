@@ -13,7 +13,7 @@
 
 ## Mode de Preparo
 
-1. Em uma panela com fogo médio acrescente o óleo eo caldo de galinha e sissoval o caldo logo em seguida coloque o franco picado em cubos na panela de deixe cozinha, sempre dando uma olhadinha para não queimar.
+1. Em uma panela com fogo médio acrescente o óleo eo caldo de galinha e dissoval o caldo logo em seguida coloque o franco picado em cubos na panela de deixe cozinha, sempre dando uma olhadinha para não queimar.
 2. Assim que o franco estiver bem cozido, acrescente o molho de tomate o ketchup a mostada e champagnon a gosto
 3. Abaixe ofogo e coloque o creme de leite e mexa bem atef se tornar um creme hogogeneo.
 4. Esta pronto para servir.
